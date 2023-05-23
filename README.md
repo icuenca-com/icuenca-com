@@ -1,2 +1,2 @@
 # icuenca
-### Tecnología, sin mas
+### Electronics Engineer | Developer in any language | Natural-born Maker
